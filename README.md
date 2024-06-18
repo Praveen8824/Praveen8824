@@ -2,7 +2,8 @@
 - 👀 I’m interested in ...VISIONARY IDEA'S DEVELOPMENT / software development
 - 🌱 I’m currently learning ...React.js
 - 💞️ I’m looking to collaborate in ...Internship
-- 📫 How to reach me ...LINKDIN,CONTACT,INSTAGRAM,WP
+- 📫 How to reach me ...LINKDIN-https://www.linkedin.com/in/praveen-tiwari-811014258/
+- INSTAGRAM-i_m_praveen08
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...I am very interactive, and creative minded .
 
